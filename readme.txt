@@ -1,1 +1,1 @@
-Sup n-word
+Sup n-word.
